@@ -14,3 +14,9 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+#### About me
+- 🔭 GDUT
+- 🌱 Android小弟
+- 👯 WISStudio
+- ⚡ csgo白给大师
